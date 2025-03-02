@@ -1,1 +1,1 @@
-# miminesmoy.github.io
+# mimines.github.io
